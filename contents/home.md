@@ -2,7 +2,7 @@ I'm currently pursuing a Summer Intern position.
 
 #### Email  
 <code>deulemon@outlok.com</code>  
-<code>20230741@stu.cqu.edu.cn</code>
+<code>ranren@stu.cqu.edu.cn</code>
 
 #### Education  
 
